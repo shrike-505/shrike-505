@@ -1,2 +1,3 @@
-Currently study in @ZJU-Turing at Zhejiang Univ.
-Wish u a good day!
+# Hi
+最近长了好多痘  
+Wish u a good day.
